@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @deo19
+- 👀 I’m interested in programmming
+- 📫 How to reach me https://www.instagram.com/_d.e.0/
